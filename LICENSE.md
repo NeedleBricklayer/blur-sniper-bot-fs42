@@ -1,4 +1,4 @@
-# 
+# quantitative blur sniper bot | collection-scanning + floor-price-tracking is the best blur sniper bot, featuring collection-scanning and floor-price-tracking. Fast, smart, and
 
 
 
